@@ -2,7 +2,6 @@
 ## **<a href = "https://github.com/tianyakk/tianya_kkndme/raw/main/tianya_kkndme.pdf">天涯kk大神三部曲.pdf&nbsp; &nbsp; 戳这里下载</a>**
 ## **<a href = "https://hub.fgit.cf/tianyakk/tianya_kkndme/raw/main/tianya_kkndme.pdf">天涯kk大神三部曲.pdf&nbsp; &nbsp; 备用下载地址</a>**
 ## **<a href = "https://drive.google.com/file/d/1GwmNsPkhKovrwX9fZ709rBZNVOI4o4EV/view">天涯kk大神三部曲.pdf&nbsp; &nbsp; 备用下载地址Google</a>**
----
 ## **<a href = "https://github.com/tianyakk/tianya_kkndme/">天涯kk大神三部曲（kkndme）文件存放Github</a>**
 ## **<a href = "https://hub.fgit.cf/tianyakk/tianya_kkndme/">天涯kk大神三部曲（kkndme）备用存放Github</a>**
 
